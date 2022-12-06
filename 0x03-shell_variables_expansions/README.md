@@ -1,1 +1,1 @@
-Creae a scrip ha creaes an alias
+The path to success is to take massive, determined action
